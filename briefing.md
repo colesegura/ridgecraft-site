@@ -1,0 +1,12 @@
+Hi there! I'm here to get you up to speed on what this project is about.  This started with me taking some 80s and 90s nature documentaries from the following parks: Glacier, Yellowstone, Yosemite, grand teton, and ranier. I split them up, and started making edits of them. each video would be around 8-15 seconds. I would find audios i liked around that range either on tiktok or on spotify, and i would fit them to loop perfectly each time someone would watch them, and then align each clip to align with the beats in a way that was aesthetically pleasing. SOme of my favorite beats would come from people like yeat, trippie redd, ken carson, etc. who most people do not associate with nature destinations, but it has been a hit online. And a lot of these songs actually have beautifully crafted beats behind them, and it strikes a chord in people. So much so that in a month, my tiktok page has generated 1.5m likes, and around 5m impressions total, completely organically. 
+
+Once this started taking off, I immediately started thinking about, "How can I monetize this?" However, I never wanted it to take away from what I was building, because it is my creation and it is beautiful. I had people reaching out to me asking for me to promote their music, and other people asking me to make edits for them. I entertained these at first, but it just didn't feel right. Then I realized, what if I start reaching out to companies, saying, look, I make content that promotes experiential destinations, here's my track record so far, would you want me to run your social media? But then even still, I feel like it would be nice if I could just keep it in house. Like, what if I just did the posting myself on the platform I've already built, with the followers I already have? 
+So, my plan is to reach out to Hawkesdene, which is a wedding and event venue in Andrews, NC, and see if they would be interested in working with me. A family member owns the property, fyi. Then, since my dad is on the board of visit tuscaloosa, that would be my next client. Next, would be the State of Alabama Tourism Board. or just the state parks, since i know a girl who was a social media intern for them. Next, would be the same with South Carolina tourism or something similar, since I know the guy who is in the us house of representatives for them, well i have stayed at his beach house and his grandson is one of my close friends. 
+
+
+
+
+
+
+
+
